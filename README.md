@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I’m currently working on Laureate Education Inc.<br>👯 I’m looking to collaborate with anyone I can.<br>🤝 I’m looking for help with Lean Six sigma.<br>🌱 I’m currently learning Process Mining.<br>💬 Ask me about how to automate your process.<br>⚡ Fun fact. 🐕 's name: Zack.
+👯 I’m looking to collaborate with anyone I can.<br>🤝 I’m looking for help with Lean Six sigma.<br>🌱 I’m currently learning Process Mining.<br>💬 Ask me about how to automate your process.<br>⚡ Fun fact. 🐕 's name: Zack.
 
 
 ## 🌐 Socials:
